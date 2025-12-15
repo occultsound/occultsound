@@ -5,10 +5,12 @@ usually by thinking too much about how things are put together.
 
 My work is rooted in Western esotericism and symbolic systems.  
 I am a published author and teacher, curious about how meaning, awareness,  
-and boundaries emerge — in thought, experience, and occasionally, in systems.
+and boundaries emerge — in thought, experience, and occasionally, in systems.  
+Based in Taiwan.
 
 Technology is not my destination, but I enjoy using it  
 to make abstract thinking slightly more tangible.
+
 
 ---
 
